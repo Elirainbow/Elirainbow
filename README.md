@@ -2,6 +2,13 @@
 
 Soy Eli (Taylor’s version) ‎‧₊˚✧🪩✧˚₊‧
 
+Formo parte de comunidad:
+<a href="https://www.enesjuriquilla.unam.mx/"  target="blank">
+  <img src="enesj.png" alt="ENES Juriquilla"
+      width="100" height="50" /> </a>
+
+https://lcgej.unam.mx/
+
 Nonbinary. Pronouns: They/Them/He/Him ✰
 
 Me fascina la biología/genética/fisiología molecular  ⋆  ⌬   🔬  🧬 🧫 🧪  ⋆
