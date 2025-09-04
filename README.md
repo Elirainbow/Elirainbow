@@ -27,7 +27,7 @@ Mi motivación es contribuir al mundo con descubrimientos útiles y profundizar 
 
 Cómo contactarme🌟: elijim@unam.edu
 
-                                                                      Ajolote de despedida :D
+## A continuación: Ajolote de despedidaaaa :D
                                                                       
 https://github.com/user-attachments/assets/47f23de2-0aca-492f-93cf-fe3877d72c91
 
