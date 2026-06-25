@@ -15,12 +15,15 @@ Formo parte de:
 Justo terminé mi primer año de uni! Comenzaré mi tercer semestre. 
 
  ⋆  ⌬   🔬  🧬 🧫 🧪  ⋆
+ 
 Las áreas que más me intrigan e inspiran son: 
 * Microbiología
 * Genética
 * Epigenética
-* Mecanismos moleculares 
- ⋆  ⌬   🔬  🧬 🧫 🧪  ⋆
+* Mecanismos moleculares
+
+⋆  ⌬   🔬  🧬 🧫 🧪  ⋆
+
 ---
 Nonbinary. Pronouns: They/Them/He/Him ✰
 
