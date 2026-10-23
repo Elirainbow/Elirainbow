@@ -12,15 +12,15 @@ Formo parte de:
   <img src="https://github.com/Elirainbow/Files/blob/62f326ea645966fa46c00e212eca531ab62c29eb/lcgej.png" alt="ENES Juriquilla"
       width="100" height="60" /> </a>
 
-Justo terminé mi primer año de uni! Comenzaré mi tercer semestre. 
-
  ⋆  ⌬   🔬  🧬 🧫 🧪  ⋆
  
 Las áreas que más me intrigan e inspiran son: 
 * Microbiología
-* Genética
+* Genómica
 * Epigenética
 * Mecanismos moleculares
+* Evolución
+* Desarrollo embrionario
 
 ⋆  ⌬   🔬  🧬 🧫 🧪  ⋆
 
